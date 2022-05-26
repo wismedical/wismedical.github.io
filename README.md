@@ -1,1 +1,0 @@
-# wismedical.github.io
